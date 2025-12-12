@@ -1,3 +1,4 @@
+https://chatgpt.com/canvas/shared/693bb94629b88191b9b32302f30859bd
 Jimma University is one of Africa's largest and most comprehensive public research universities. 
 The university has more than 4,000 faculty and staff members.
 It also has twelve research facilities, a modern hospital, 
